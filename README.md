@@ -1,5 +1,3 @@
-### Hi
+Amelia Peacock
 
 University of Edinburgh - Economics (MA) 
-
-Amelia Peacock
